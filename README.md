@@ -1,5 +1,5 @@
  ### Hi there, I'm Ashish 👋  
- <img align='right' src="https://analyticsindiamag.com/wp-content/uploads/2018/12/developer-dribbble.gif](https://thumbs.gfycat.com/EvilNextDevilfish-small.gif)" width="231">
+ <img align='right' src="https://thumbs.gfycat.com/EvilNextDevilfish-small.gif" width="231">
 
   <a href="https://github.com/durgeshrai633/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?lines=Full+Stack+Web+Developer;&left=true&width=400&height=50"></a>
 
